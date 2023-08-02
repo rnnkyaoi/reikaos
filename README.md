@@ -9,3 +9,4 @@
 ---
 
 ###### ★  misc blinkies !! vv ꒱
+![lmndmn](https://mikejima.crd.co/assets/images/gallery09/752d42ed_original.gif?v=16e7e82c)
