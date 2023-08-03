@@ -1,4 +1,4 @@
-#### ★  read my rentry ꒱
+#### ★  read my [rentry](https://rentry.co/kaosaku) ꒱
 
 ---
 
