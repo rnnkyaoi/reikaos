@@ -1,4 +1,5 @@
 #### ★  read my [rentry](https://rentry.co/kaosaku) ꒱
+##### \( will upd8te the blinkies :3 \)
 
 ---
 
