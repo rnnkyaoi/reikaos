@@ -1,6 +1,6 @@
 #### ★  read my [rentry](https://rentry.co/kaosaku) ꒱
 
-![](https://i.pinimg.com/564x/af/0a/f0/af0af0edb4b33df4bb600a08296c501f.jpg)
+![haiiii](https://i.pinimg.com/564x/af/0a/f0/af0af0edb4b33df4bb600a08296c501f.jpg)
 
 ##### \( will upd8te the blinkies :3 \)
 
