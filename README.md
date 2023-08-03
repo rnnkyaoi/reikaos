@@ -1,5 +1,14 @@
 #### ★  read my [rentry](https://rentry.co/kaosaku) ꒱
 
+<style>
+#image01 {https://i.pinimg.com/564x/8d/e2/75/8de27505882425ac78785097abca740d.jpg
+-webkit-mask-image: url(https://i.imgur.com/Nfc5Pr6.png);
+-webkit-mask-size: 50%;
+-webkit-mask-repeat: no-repeat;
+-webkit-mask-position: center;
+}
+</style>
+
 ---
 
 ###### ★  silly es stamps !! vv ꒱
