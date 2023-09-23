@@ -3,7 +3,7 @@
 ![haiiii](https://i.pinimg.com/564x/a8/08/5e/a8085e444420ace8abd8e72ff00e9d28.jpg))
 
 ##### \( will upd8te the blinkies :3 \)
-##### i go by akaashi , rinne , and kaoru (clairvoyant being optional).
+##### i go by kaoru, rinne, or akaashi
 
 ---
 
